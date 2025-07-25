@@ -15,7 +15,7 @@
 
 - 📝 I regularly write articles on [https://medium.com/@shashikumarkushwaha3](https://medium.com/@shashikumarkushwaha3)
 
-- 📫 How to reach me **shahsikumarkushwaha03@gmail.com**
+- 📫 How to reach me **shahsikumarkushwaha3@gmail.com**
 
 - 📄 Know about my experiences [https://shashikumarkush1.hackerresume.io/ce1d4405-8e45-4f4f-9b83-315999f18afe](https://shashikumarkush1.hackerresume.io/ce1d4405-8e45-4f4f-9b83-315999f18afe)
 
